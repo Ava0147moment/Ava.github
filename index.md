@@ -1,4 +1,4 @@
 # Ava'new world!
 一闪一闪亮晶晶，满天都是小星星，挂在天上放光明，满天都是小星星。一闪一闪亮晶晶
 111
-[https://github.com/Ava0147moment/Ava.github/blob/main/tight]
+
